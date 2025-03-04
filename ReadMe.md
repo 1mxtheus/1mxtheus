@@ -1,5 +1,5 @@
 # 💫 About Me:
-sou estudante de ADS<br>Em busca do meu primeiro estagio
+sou estudante de ADS👨🏾‍💻<br>Em busca do meu primeiro estagio
 
 
 ## 🌐 Socials:
